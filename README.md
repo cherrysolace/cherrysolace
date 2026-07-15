@@ -1,6 +1,6 @@
 im kewl, I think. maybe
 
-they/them
+pronouns; they/them .
 
 c + h freely,  i dont mind ! ^_^ also don't be afraid to interact :3
 
