@@ -1,16 +1,13 @@
-## Hi there 👋
+im kewl, I think. maybe
 
-<!--
-**cherrysolace/cherrysolace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+they/them
 
-Here are some ideas to get you started:
+c + h freely,  i dont mind ! ^_^ also don't be afraid to interact :3
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+im kn love w many fandoms,,
+
+anybody who goes by the definition of problematic, please don't interact ! 
+
+im sorry if i seem like i don't care. i swear im awesome :'C
+
+will probably edit this thing later lol ty 4 reading =D
