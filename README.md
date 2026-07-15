@@ -1,6 +1,6 @@
-          ┌── ⋆⋅☆⋅⋆ ──┐
+  ‿︵‿︵୨˚̣̣̣͙୧ - - ୨˚̣̣̣͙୧‿︵‿︵
         
-c + h freely,  i dont mind ! ^_^ also don't be afraid to interact :3
+cuddle + hug freely!! :3
 
 im kn love w many fandoms,, object shows, YT series, etc . . . 
 
@@ -10,6 +10,8 @@ proud alterhuman (fictkin, fictheart)
 
 will probably edit this thing later lol ty 4 reading =D
 
+༶•┈┈୨♡୧┈┈•༶
+
 i love music
 
-          └── ⋆⋅☆⋅⋆ ──┘
+
